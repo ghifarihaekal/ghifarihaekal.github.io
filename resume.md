@@ -19,9 +19,9 @@ Juni 2005 - Juni 2011
 
 ## Pengalaman Organisasi
 
-- Pramuka--Ketua(SMA)
-- Roket Air--Wakil Ketua(SMA)
-- Rohani Islam--Seksi Dana Usaha(SMA)
+- Pramuka-Ketua(SMA)
+- Roket Air-Wakil Ketua(SMA)
+- Rohani Islam-Seksi Dana Usaha(SMA)
 
 ## Keahlian
 
